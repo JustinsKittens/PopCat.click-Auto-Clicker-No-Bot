@@ -1,1 +1,0 @@
-# PopCat.click-Auto-Clicker-No-Bot
